@@ -1,3 +1,3 @@
-Jacek Łoński
-Jan Głombiowski
+Jacek Łoński  
+Jan Głombiowski  
 Tymon Jasiński
